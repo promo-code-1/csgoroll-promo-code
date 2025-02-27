@@ -1,16 +1,19 @@
-# CSGORoll Promo Code 2025 – Use Code "HELLANEW"
+# CSGORoll Promo Code "HELLANEW" to get Free Cases and Deposit Bonus
 
 Looking to boost your rewards on CSGORoll? By using the promo code **HELLANEW**, you can claim **3 free cases** and a **5% deposit bonus** to maximize your chances of winning valuable CS2 skins. Whether you're new to CSGORoll or a returning player, these promo codes offer great benefits to enhance your experience on the platform.
 
-## Latest CSGORoll Bonus Codes 2025
+## Latest CSGORoll Promo Codes
 
-| Product  | Promo Code  | Welcome Bonus |
+| Bonus Type  | Promo Code  | Welcome Bonus |
 | ------------- | ------------- |------------- |
 | 🎰 CSGORoll Welcome Bonus  | HELLANEW  | 3 free cases and a 5% deposit bonus |
 | 🎁 CSGORoll Free Cases  | GAMBLE-CSGO  | Get 3 free cases |
 | 🎀 CSGORoll Free Coins  | HELGO | Get up to 100 free coins |
 | 🤑 CSGORoll XP Level  | HELLA3  | Upgrade your CSGORoll level |
 | 💸 CSGORoll Deposit Bonus  | HELLACS2  | Get +5% deposit bonus |
+
+## What is a CSGORoll Promo Code?
+A CSGORoll Promo Code is a special alphanumeric code that players can enter on the CSGORoll platform to receive various bonuses. These bonuses often include free cases, deposit bonuses, or other in-game rewards, enhancing the user's gaming experience by providing additional opportunities to acquire valuable skins and items.
 
 ## How to Use CSGORoll Promo Code?
 
@@ -21,9 +24,9 @@ Redeeming your CSGORoll promo code is quick and simple. Just follow these steps:
 3.  **Enter the Code** – Type **HELLANEW** or any other active promo code in the provided field.
 4.  **Claim Your Bonus** – Enjoy your **3 free cases** and a **5% deposit bonus** instantly!
 
-## CSGORoll Promo Codes for 2025
+## CSGORoll Promo Codes for new users
 
-Here are the most up-to-date promo codes you can use on CSGORoll in 2025:
+Here are the most up-to-date promo codes you can use on CSGORoll in March 2025:
 
 *   **HELLA3** – Get **3 free cases** and a **5% deposit bonus**.
 *   **GAMBLE-CSGO** – Unlock **3 free cases** and a **5% deposit bonus**.
@@ -31,9 +34,17 @@ Here are the most up-to-date promo codes you can use on CSGORoll in 2025:
 *   **HELLANEW** – New players receive **3 free cases** and a **5% deposit bonus**.
 *   **GAMBLE100** – Receive **3 free cases** and a **5% deposit bonus**.
 
-## What is the CSGORoll Promo Code?
+## Recent CSGORoll Updates
+*   📅 18 February 2025 – New PVP Modes!
+CSGORoll has introduced 3v3 and 2v2v2 PVP modes, responding to player requests for more competitive gameplay. These new modes are now live, offering exciting new ways to battle.
 
-A CSGORoll promo code is a special **bonus code** that players can use to receive free cases, deposit bonuses, and other exclusive rewards. These codes are periodically updated and provide players with **extra incentives** to play games like Dice, Roulette, Crash, and Cases on CSGORoll.
+*   📅 21 February 2025 – Service Status Page
+CSGORoll has launched a dedicated webpage to help users check the status of all services in case of issues. Players experiencing difficulties can now quickly verify platform status.
+🔗 Access the page here: [CSGORoll Status](https://status.csgoroll.com/)
+
+*   📅 23 February 2025 – Exclusive Discord Content
+CSGORoll is shifting focus to exclusive content on its Discord server, including special competitions and giveaways. Further details remain undisclosed to keep the excitement alive.
+🔗 Join the CSGORoll Discord community: [CSGORoll Discord](https://discord.gg/csgoroll)
 
 ## How to Get a Bonus on CSGORoll?
 
